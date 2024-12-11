@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Mqssyx
+- 👀 I’m interested in coding and in game developing
+- 🌱 I’m currently learning C#, but i'll learn html too
+- 📫 How to reach me: massimovallocchia8@gmail.com
+- 😄 Pronouns: he/him
+- 🥋 Karate ~ brown
+- Co-founder of NullStudios | Indie game devs.
